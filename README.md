@@ -1,2 +1,3 @@
 # proSoft
-programacion de software de 6-8 m-j
+Clase programacion de software
+miercoles y jueves 6am a 8am 🔥
